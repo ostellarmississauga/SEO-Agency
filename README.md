@@ -1,4 +1,4 @@
-# About OSTELLAR Mississauga
+# OSTELLAR - Premier SEO Company in Mississauga
 
 OSTELLAR works with both small and large business owners in Mississauga to launch active online presences, by premier SEO and Web Design services that put their products/services before the target audience.
 
