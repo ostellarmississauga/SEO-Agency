@@ -1,4 +1,3 @@
-# seo-agency
 === Stellax Framework ===
 
 Contributors: automattic
